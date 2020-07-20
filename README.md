@@ -4,13 +4,13 @@ Here Is The Description
 [![HitCount](http://hits.dwyl.com/irfanadil0004/irfan-me.svg)](http://hits.dwyl.com/irfanadil0004/irfan-me)
 👆👆-GitHub Hits
 
-🎓 BTech -Computer Science Engneering -1st Year
-🔭 I’m currently working on NIETiansHub
-🌱 I’m currently Flutter & Python Oops!
-💬 Ask me about Apps,Websites,Python or any tech related stuff.
-👯 I’m looking For Someone Like Me To Build Somwthing For Society 
-💼 Buissness Lover Ask Me About How Things Work!
-👽 Cosmos Lover Ask Me About Aliens & TIme Travals You Wont Regret!
+-🎓 BTech -Computer Science Engneering -1st Year
+-🔭 I’m currently working on NIETiansHub
+-🌱 I’m currently Flutter & Python Oops!
+-💬 Ask me about Apps,Websites,Python or any tech related stuff.
+-👯 I’m looking For Someone Like Me To Build Somwthing For Society 
+-💼 Buissness Lover Ask Me About How Things Work!
+-👽 Cosmos Lover Ask Me About Aliens & TIme Travals You Wont Regret!
 
 
 Loves ❣️❣️-
