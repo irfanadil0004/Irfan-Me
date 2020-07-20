@@ -17,9 +17,9 @@ Here Is The Description
 - 📱 Insipired By WhatsApp Do Chat On Play Store So We Can Be Connected Securly By Indian App.
 - 🕹 Inspired By Games Made A Game Advanture Land In 10th So I Can Play With My Own Cheat Codes.
 - 🤝 Devloped Websites And Apps For Startups So They Can Grow Their Buissniess In Afordable Price.
-- 💵 While E-Commerce On Rise,We Made T-shirt Selling Website For Quality Products In Cheap Price [MMD] (https://MadMonkeydeals.com}
-- 📰 In The Era Of Bised News,Made An Unbised News App- [Nishpaksh-Today] (https://play.google.com/store/apps/details?id=com.nishpakshtodayofficial&hl=en_IN) Today For Quality Journalism
-- 🎓 For Indeed Unity & For Connecting College Students On One Place Made [NIETiansHub] (www.nietianshub.com)
+- 💵 While E-Commerce On Rise,We Made T-shirt Selling Website For Quality Products In Cheap Price [MmD](https://MadMonkeydeals.com}
+- 📰 In The Era Of Bised News,Made An Unbised News App- [Nishpaksh-Today](https://play.google.com/store/apps/details?id=com.nishpakshtodayofficial&hl=en_IN) Today For Quality Journalism
+- 🎓 For Indeed Unity & For Connecting College Students On One Place Made [NIETiansHub](www.nietianshub.com)
 
 
 # What I Love
@@ -33,7 +33,7 @@ Loves ❣️❣️-
 - [linkedin](https://www.linkedin.com/in/irfan-aadil-402324161)
 - [Facebook](https://www.facebook.com/IRFANADIL123/)
 - [Twitter](https://twitter.com/irfanadil15)
-- [Instagram] (https://www.instagram.com/irfanadil004/)
+- [Instagram](https://www.instagram.com/irfanadil004/)
 
 - Thanks For Visiting 👋 
 
