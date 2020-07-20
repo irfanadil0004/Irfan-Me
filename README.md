@@ -8,7 +8,7 @@ Here Is The Description
 - 🔭 I’m currently working on NIETiansHub
 - 🌱 I’m currently Flutter & Python Oops!
 - 💬 Ask me about Apps,Websites,Python or any tech related stuff.
-- 👯 I’m looking For Someone Like Me To Build Somwthing For Society 
+- 👯 I’m looking For Someone Like Me To Build Something For Society 
 - 💼 Buissness Lover Ask Me About How Things Work!
 - 👽 Cosmos Lover Ask Me About Aliens & TIme Travals You Wont Regret!
 
