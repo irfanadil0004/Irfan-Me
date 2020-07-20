@@ -30,9 +30,9 @@ Loves ❣️❣️-
 
 # Follow Me
 - Follow Me On-
-- [linkedin] (https://www.linkedin.com/in/irfan-aadil-402324161)
-- [Facebook] (https://www.facebook.com/IRFANADIL123/)
-- [Twitter] (https://twitter.com/irfanadil15)
+- [linkedin](https://www.linkedin.com/in/irfan-aadil-402324161)
+- [Facebook](https://www.facebook.com/IRFANADIL123/)
+- [Twitter](https://twitter.com/irfanadil15)
 - [Instagram] (https://www.instagram.com/irfanadil004/)
 
 - Thanks For Visiting 👋 
